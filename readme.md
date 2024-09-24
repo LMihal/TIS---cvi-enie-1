@@ -13,6 +13,6 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1. Michal Vanco
-2. 
+2. Adam Forgáč
 3.
 4.
