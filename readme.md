@@ -15,4 +15,4 @@ Nas tim tvoria clenovia:
 1. Michal Vanco
 2. 
 3.
-4.
+4.Lucia Benovicsova
