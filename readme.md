@@ -14,5 +14,5 @@ Nas tim tvoria clenovia:
 
 1. Michal Vanco
 2. Adam Forgáč
-3.
+3. Lukáš Mihál
 4.
